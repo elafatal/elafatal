@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 🌱 About Me:
 🎓  I'm currently studying Computer Engineering at the Babol Noshirvani University of Technology .
 
 
